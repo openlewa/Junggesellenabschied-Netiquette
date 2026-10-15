@@ -16,7 +16,7 @@ Diese Netiquette gilt für den Junggesellenabschied, den Junggesellinnenabschied
 - Fremde werden nicht zum Programmpunkt. Keine Belästigung, kein ungefragtes Filmen, keine aufdringlichen Verkaufsspiele oder Mutproben gegenüber Unbeteiligten.
 - Fotos und Social Media nur mit Zustimmung. Vor dem Posten, Teilen oder Versenden von Bildern und Videos fragen. Peinliche Aufnahmen bleiben privat oder werden gelöscht.
 - Alkohol verantwortungsvoll. Niemand wird zum Trinken gedrängt. Auf Essen, Wasser, Pausen und einen sicheren Heimweg achten.
-- Sicherheit geht vor. Keine gefährlichen Mutproben, keine illegalen Aktionen und keine Fahrten unter Alkohol- oder Drogeneinfluss.
+- Sicherheit geht vor. Keine gefährlichen Mutproben, keine illegalen Aktionen und keine Fahrten unter beeinträchtigendem Alkohol- oder Drogeneinfluss.
 - Rücksicht auf die Gruppe. Pünktlich sein, Absprachen einhalten, aufeinander achten und niemanden allein zurücklassen.
 - Die Feier endet, wenn sie enden sollte. Wenn die Hauptperson oder jemand aus der Gruppe genug hat, wird das respektiert.
 
