@@ -56,9 +56,10 @@ Sie gilt für alles, was zu dieser Feier gehört, vor Ort und online, zum Beispi
 - Fotos, Videos und Social Media, auch nach dem Tag
 - den Umgang mit Menschen, die nicht zur Gruppe gehören
 
-Was außerhalb des Tages passiert, kann die Gruppe trotzdem treffen. Ein demütigender Post am nächsten Morgen oder Druck in einem privaten Chat gehört deshalb genauso hierher.
+Was außerhalb des Tages passiert, kann die Gruppe trotzdem treffen. Ein demütigender Post am nächsten Morgen oder Druck in einem privaten Chat ist deshalb genauso unerwünscht.
 
 Vor dem Tag wird mindestens eine erreichbare Kontaktperson benannt, oft der Trauzeuge oder die Trauzeugin. Alle wissen, wie sie diese Person während der Feier erreichen, und wo im Notfall Hilfe zu holen ist. In Deutschland, Österreich und der Schweiz ist der Notruf 112.
+Bei kleineren Vorfällen die Rufnummer 116 117.
 
 ## Erwartetes Verhalten
 
